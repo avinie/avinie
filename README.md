@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @avinie
 - 👀 I’m interested in jbial's work
 - 🌱 I’m currently learning about jbial's work
-- 💞️ I’m looking to collaborate on jbial's work
+- 💞️ I’m looking to collaborate with jbial
 - 📫 How to reach me i duno
 
 <!---
